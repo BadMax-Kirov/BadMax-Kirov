@@ -1,1 +1,0 @@
-# BadMax-Kirovtrhhdhdhtd
